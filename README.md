@@ -12,3 +12,5 @@ Here are the services I provide.
 - Excellent Attention to Detail & Timely Delivery 
 
 I am eager to engage in a deeper conversation regarding your project requirements and explore how we can collaborate to deliver exceptional results in the realm of data-related tasks. Your satisfaction is my utmost priority, and I am confident that by connecting with me, you will be met with a level of proficiency and dedication that will exceed your expectations. Do not hesitate to reach out, as I am ready to embark on this journey with you and demonstrate my commitment towards achieving excellence. Thank you!
+
+If you are interested work with me click on https://www.upwork.com/workwith/assefaa
